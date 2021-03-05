@@ -1,5 +1,5 @@
  # Abdurasulova Zukhra
-Email: [zuhra_2007@inbox.ru](https://e.mail.ru/inbox/?authid=klutm2w4.mtp&back=1%2C1&dwhsplit=s10273.b1s&from=mail.login&x-login-auth=1)  |
+Email: [zuhra_2007@inbox.ru](mailto:zuhra_2007@inbox.ru)  |
  Phone:+998977480620 |
  Telegram: [Zukhra](https://t.me/zuhra_ab)
 ***
