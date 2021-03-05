@@ -10,6 +10,6 @@ I can work with **HTML,CSS,Boostrap,Javascript**. I also have a background in **
 #### Experience
 18.01.2021 [Zucco IT Academy](http://zucco.academy/) As a *UX / UI*  designer and administrator.
 ##### Education
-I am a student (bachelor, 2nd year) of "Tashkent Technical State University" in joint cooperation with the Chinese university "North China university of technology". My English level  is Intermediate.
+I am a student (bachelor, 2nd year) of "Tashkent Technical State University" in joint cooperation with the Chinese university "North China university of technology". My English level  is Intermediate. 
 ##### Code
 not end
